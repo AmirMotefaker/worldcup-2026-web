@@ -1,1 +1,1 @@
-## WorldCup 2026
+## Worldup 2026
